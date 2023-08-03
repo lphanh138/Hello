@@ -1,2 +1,2 @@
 # Hello
-Lê Phương Anh @lphanh138, student at @NEU
+Lê Phương Anh @lphanh138, student at @U
